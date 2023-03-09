@@ -96,10 +96,13 @@ Keynote Software
 
 Dr. Michelle Rivard - (810) 569-9226 - mrivard @sr3.org
 Lead veterinarian at SR3. Can attest to my work in pinniped care and eagerness to learn and be a strong team member.
+
 Rachel Funk - (720) 569 -6336 - rachel.ann.funk@gmail.com
 Veterinary technician at SR3. Can attest to my work in high stress situations and my ability to be a leader of my peers.
+
 Megan Schouweiler - (916) 955-7023 - megan.schouweiler@gmail.com
 Animal Care Staff Lead at SR3. Can attest to my ability to grow and learn quickly in new situations and retain information.
+
 Bayly Peterson - (253) 797-6426
 Owner and manager of OtherSide Bagels Co. Can attest to my strength in working in a high-paced environment with a variety of different personality types and experience levels.
 ![image](https://user-images.githubusercontent.com/126024543/223885717-b99082be-f9a0-49f7-88d3-6a9923c3378a.png)
