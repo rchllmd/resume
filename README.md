@@ -53,11 +53,11 @@ Keynote Software
 ●	Cleaning duties in the dive locker.
 
 ## VOLUNTEER EXPERIENCE
-Marine Pathway Education Guide Volunteer, May 2019 - March 2020 Denver’s Downtown Aquarium, Denver, CO
+### Marine Pathway Education Guide Volunteer, May 2019 - March 2020 Denver’s Downtown Aquarium, Denver, CO
 ●	Responsible for educating and answering questions from Aquarium guests.
 ●	Attended educational courses covering topics such as sustainability, animal husbandry, public interaction etiquette, and applicable current natural marine events.
 
-Animal Foster and Volunteer, September 2015 - Present RezDawg Rescue and Front Range Freedom Rescue, Denver, CO
+### Animal Foster and Volunteer, September 2015 - Present RezDawg Rescue and Front Range Freedom Rescue, Denver, CO
 ●	Fostered over 80 animals including dogs, cats, kittens, puppies, turtles, and guinea pigs.
 ●	Responsible for treating animals in various health conditions by: bottle feeding, ear, mouth, and nose cleaning, bathing, and giving oral medicine.
 ●	Volunteered at multiple adoption events in which responsible to watch and clean adoptees as well as discuss the animal's personality, history, and care with possible adopters.
